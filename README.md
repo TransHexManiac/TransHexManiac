@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on: nothing,I prefer solitude
 - 📫 How to reach me: preferably don't, but discord is Elite/elitebouncer
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: not tansiioned yet, that's a W.I.P
+- ⚡ Fun fact: not transitioned yet, that's a W.I.P
 
 <!---
 TransHexManiac/TransHexManiac is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
